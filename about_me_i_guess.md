@@ -1,0 +1,4 @@
+- 👋 Hello, I want to be a storytime animator, cartoonist (like theodd1sout and more!) and a game dev (yes that is a lot, I know)
+- 👀 I’m interested in art and game dev and basically everything in the line above.
+- 🌱 I’m currently learning basically everything in the first line.
+- 📫 How to reach me not yet.
